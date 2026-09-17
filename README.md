@@ -1,1 +1,1 @@
-Shop for simple nation 
+A store for ordinary people
